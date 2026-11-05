@@ -2,12 +2,16 @@
 
 ## Apartado 1
 
-¡¡Tengo diharrea ayudaaaaaaaaaaaaaa!!
+I've come to make an announcement
 
 ## Apartado 2
 
-Jarvis, mas alcohol...
+Shadow the hedgehog is a
 
 ## Apartado 3
 
-# Sonic es real
+ ª
+
+## Apartado 4
+
+ªªªªªªªªªªªªªªªªªªªªªªªªªªªªªªª

@@ -19,3 +19,15 @@ Shadow the hedgehog is a
 ## Apartado 5
 
 Añadido con github desktop, caranalga
+
+## Apartado 6
+
+Añadido desde la web de github
+
+## Apartado 6.1
+
+Hola, soy Antonio Lobato. ¿Quieres saber cuanto vale tu coche?
+
+## Apartado 6.2
+
+AAAAAAAAAAH
